@@ -1,0 +1,1 @@
+hôm nay trời nóng quá nóng
